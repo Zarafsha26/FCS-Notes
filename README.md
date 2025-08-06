@@ -1,4 +1,5 @@
 # FCS-Notes
+
 The SILK Life initiative is deeply embedded in our GEN ECOvillage, which spans across the Mid-Ohio Valley, encompassing regions such as Pomeroy, Racine, and Marietta in Ohio, as well as Grantsville, Ravenswood, and Parkersburg in West Virginia. This ECOvillage is a testament to our commitment to sustainable living, community engagement, and holistic well-being.
 
 At Leslie's property, we have established organic gardens that serve as a cornerstone for our sustainable agriculture training programs. These gardens are meticulously maintained using eco-friendly practices, providing a hands-on learning environment for members to understand the intricacies of organic farming, soil health, and sustainable crop rotation.
